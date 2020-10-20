@@ -13,7 +13,7 @@ Total time : 25 mins
 
 Servings : 3
 
-# Ingredients (1 CUP = 240 ml):
+# Ingredients :
 #### For Frying Baby Corn
 200 grams Baby Corn
 
